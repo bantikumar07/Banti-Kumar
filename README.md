@@ -1,2 +1,2 @@
 # my_profile
-He my complete professional details are available.
+Here my complete professional details are available.
